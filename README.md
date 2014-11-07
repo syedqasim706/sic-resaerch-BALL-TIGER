@@ -1,6 +1,6 @@
-Ball Pythons & Tiger Mosquito
+Ball Pythons
 =======================
 Invasive species
 =======================
 
-Our little research papers about Ball Pythons and Tiger BLOOD SUCKERS!!!!
+The ball python section of the research of invasive species.
